@@ -1,6 +1,6 @@
 ### Have a nice day
 
-☕ I’m currently learning some things.
+🌑 I’m currently learning some things.
 
  <div>
   <a href="https://github.com/derrameicafe">
